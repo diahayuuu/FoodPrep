@@ -4,4 +4,4 @@ FoodPrep adalah aplikasi inovatif yang dirancang untuk membantu pengguna merenca
 KELOMPOK FoodPrep
 Anggota 1: TSABITAH INAYAH - 22/498733/TK/54717
 Anggota 2: DIAH AYU RAHMAWATI - 22/499722/TK/54760
-Anggota 3: Navika Berlianda Rihadatul'aisya - 22/505243/TK/55277
+Anggota 3: NAVIKA BERLIANDA RIHADATUL'AISYA - 22/505243/TK/55277
